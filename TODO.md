@@ -86,7 +86,7 @@ p4 - Very Low Priority (Seasonal Interests)
 1. Word Power Made Easy - p3   
     1 month, VERY SLOW and endless, but english gets much better
 
-4. The Art of Thinking Clearly - p3 
+4. The Art of Thinking Clearly - p3  
     1 week, read quite a few like this already
 
 6. Never Split the Difference - p3  
@@ -142,7 +142,7 @@ p4 - Very Low Priority (Seasonal Interests)
 1. A Girl who got Corrupted by the Intenet and is the Summoned Hero - p1  
     2 days, Small book, feels like progress
 
-5. 1984 - p2
+5. 1984 - p2  
     2 weeks, Recommended and very relevent
 
 3. In Search of Lost Time - p4  
